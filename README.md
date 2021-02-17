@@ -1,1 +1,0 @@
-# Joshua Gana's CV
